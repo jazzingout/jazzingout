@@ -1,22 +1,9 @@
-### ![](https://adriansblinkiecollection.neocities.org/c15.gif) !!!!!!!!!!!! info's up but decor is still on its way ^_^
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
 ![topdivider](https://github.com/user-attachments/assets/f5bc4e4c-dced-4586-834f-b59482d52017)
 
-trippy && a little bit of center here
+![trip](https://github.com/user-attachments/assets/62751db8-42c7-4bd1-a131-edecb24b0ddb)
+
 ***
-![yellow sparkles](https://i.postimg.cc/zDbRFdpz/4DCKhtb.gif)ㅤ***❝ㅤhere's a cool quote from trippy !! ❜ ɞ***ㅤ![orange question marks](https://i.postimg.cc/9Qc1D52g/DE7rJpT.gif)
+![yellow sparkles](https://i.postimg.cc/zDbRFdpz/4DCKhtb.gif)ㅤ***❝ㅤi'm not afraid of lying ,, but i am afraid of dying !! ❜ ɞ***ㅤ![orange question marks](https://i.postimg.cc/9Qc1D52g/DE7rJpT.gif) */lyr*
 ***
 
 ![orange](https://i.postimg.cc/P5V9Wr2F/F1AD5027-0B7D-4CE9-AEEE-024E24526D1B.gif)ㅤ∘ *scire*ㅤ⸝⸝ㅤ***cosmo***ㅤ⸝⸝ㅤ*spawnㅤ.ᐟ*
