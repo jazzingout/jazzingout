@@ -21,6 +21,14 @@
  
 ![clown blinkie](https://adriansblinkiecollection.neocities.org/b31.gif) ![cd blinkie](https://adriansblinkiecollection.neocities.org/x44.gif) ![heavenhell](https://adriansblinkiecollection.neocities.org/c24.gif)
 
+![star](https://adriansblinkiecollection.neocities.org/c27.gif) ![just say hi](https://adriansblinkiecollection.neocities.org/b20.gif) ![liveandie](https://adriansblinkiecollection.neocities.org/x2.gif)
+
+![ow](https://adriansblinkiecollection.neocities.org/s4.gif) ![sorry](https://adriansblinkiecollection.neocities.org/c6.gif) ![annoyance](https://adriansblinkiecollection.neocities.org/b8.gif)
+
+![](https://adriansblinkiecollection.neocities.org/c19.gif) ![](https://adriansblinkiecollection.neocities.org/x45.gif) ![i give up on names](https://adriansblinkiecollection.neocities.org/c8.gif)
+
+![](https://adriansblinkiecollection.neocities.org/c19.gif) ![](https://adriansblinkiecollection.neocities.org/c2.gif) ![](https://adriansblinkiecollection.neocities.org/s13.gif)
+
 ![dice](https://i.postimg.cc/x8ZtwxbT/452f5aff.gif) ***⌝ㅤ[pixels](https://rentry.co/decocore) ,, [blinkies](https://adriansblinkiecollection.neocities.org) ,, others made by me***
 
 ![bottomdivider](https://github.com/user-attachments/assets/1ff82b40-3a5d-4320-a5c6-2bc038b7f880)
