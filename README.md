@@ -1,3 +1,6 @@
+> [!NOTE]
+> profile is *not* very mobile--friendly ,, 0_o"
+
 ![topdivider](https://github.com/user-attachments/assets/f5bc4e4c-dced-4586-834f-b59482d52017)
 
 ![trip](https://github.com/user-attachments/assets/62751db8-42c7-4bd1-a131-edecb24b0ddb)
