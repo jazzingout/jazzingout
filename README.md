@@ -1,5 +1,5 @@
 > [!NOTE]
-> profile *isn't* too mobile--friendly ,, 0_o"
+> profile isn't *too* mobile--friendly ,, 0_o"
 
 ![topdivider](https://github.com/user-attachments/assets/f5bc4e4c-dced-4586-834f-b59482d52017)
 
