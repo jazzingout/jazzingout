@@ -6,7 +6,7 @@
 ![trip](https://github.com/user-attachments/assets/62751db8-42c7-4bd1-a131-edecb24b0ddb)
 
 ***
-![yellow sparkles](https://i.postimg.cc/zDbRFdpz/4DCKhtb.gif)ㅤ***❝ㅤi'm not afraid of lying ,, but i am afraid of dying !! ❜ ɞ***ㅤ![orange question marks](https://i.postimg.cc/9Qc1D52g/DE7rJpT.gif) */lyr*
+![yellow sparkles](https://i.postimg.cc/zDbRFdpz/4DCKhtb.gif)ㅤ***❝ㅤi'm not afraid of lying ,, but i am afraid of dying !!ㅤ❜ɞ***ㅤ![orange question marks](https://i.postimg.cc/9Qc1D52g/DE7rJpT.gif) */lyr*
 ***
 
 ![orange](https://i.postimg.cc/P5V9Wr2F/F1AD5027-0B7D-4CE9-AEEE-024E24526D1B.gif)ㅤ∘ *scire*ㅤ⸝⸝ㅤ***cosmo***ㅤ⸝⸝ㅤ*spawnㅤ.ᐟ*
