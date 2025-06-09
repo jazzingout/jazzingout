@@ -23,7 +23,7 @@
 
 ![orange](https://i.postimg.cc/P5V9Wr2F/F1AD5027-0B7D-4CE9-AEEE-024E24526D1B.gif)ㅤ∘ㅤasd ,, [tone tags](https://toneindicators.carrd.co/) **appreciated** !! ☆
 
-*made this for ponytown lulz* ,, i love it when people int don't b shy !!ㅤ∘ㅤ![lemon](https://i.postimg.cc/7b84DwJb/2163AC05-39EF-4846-B08A-FACA23405068.gif)
+*made this for ponytown lulz* ,, int is encouraged !!ㅤ∘ㅤ![lemon](https://i.postimg.cc/7b84DwJb/2163AC05-39EF-4846-B08A-FACA23405068.gif)
  
 ![clown blinkie](https://adriansblinkiecollection.neocities.org/b31.gif) ![cd blinkie](https://adriansblinkiecollection.neocities.org/x44.gif) ![heavenhell](https://adriansblinkiecollection.neocities.org/c24.gif)
 
