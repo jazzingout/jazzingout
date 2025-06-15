@@ -13,7 +13,7 @@
 
 ✎　-　**he**ㅤ⸝⸝ㅤtheyㅤ⸝⸝ㅤ*~~neo prns~~*ㅤ∘ㅤ![lemon](https://i.postimg.cc/7b84DwJb/2163AC05-39EF-4846-B08A-FACA23405068.gif)
 
-![53](https://i.postimg.cc/CxJ9fcDc/2ff76b33.gif) [strawpage](https://notjazzyoliver.straw.page/) . [linktree](https://linktr.ee/jazzingout) . [atabook](https://jazzingout.atabook.org/) ![53](https://i.postimg.cc/CxJ9fcDc/2ff76b33.gif)
+![53](https://i.postimg.cc/CxJ9fcDc/2ff76b33.gif) [strawpage](https://uptomischief.straw.page/) . [linktree](https://linktr.ee/jazzingout) . [atabook](https://jazzingout.atabook.org/) ![53](https://i.postimg.cc/CxJ9fcDc/2ff76b33.gif)
 
 ![orange](https://i.postimg.cc/P5V9Wr2F/F1AD5027-0B7D-4CE9-AEEE-024E24526D1B.gif)ㅤ∘ㅤavid typing quirk user ,, [*polymind*](https://polymind.miraheze.org/wiki/Polymindence) ⁀➷
 
